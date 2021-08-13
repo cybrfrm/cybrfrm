@@ -1,5 +1,5 @@
 - Hi, I’m @cybrfrm
-- I run a business called Cyberfarm Dev
+- I have a real name too.
 - I am always learning
 - Supermongondovias!
 
